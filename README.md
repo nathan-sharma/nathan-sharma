@@ -14,4 +14,5 @@
 
 ## 🚀 Also love model rockets and Physics
 - Locking in for 2027 F=MA
+- Building rockets whenever I get the free time
 
