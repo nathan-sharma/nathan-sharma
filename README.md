@@ -6,15 +6,10 @@
 - Mathcounts Houston Chapter 2022-2024
 
 ## 🎻 Cellist
-- Region 23
-- Varsity HS 2024-2028
-- MS symphony (rank 5) & HS philharmonic (rank 23) orchs
-- KYAC qualifier 2025
+
 
 ## 🧪 Science Fair 
-- 2025-26 is my first year doing ISEF
-- Hopefully it goes well at SEFH this year!
+
 
 ## 🚀 Also love model rockets and Physics
-- Building rockets whenever I get the free time
 
