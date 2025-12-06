@@ -6,7 +6,7 @@
 - Mathcounts Houston Chapter 2023 & 2024
 
 ## 🎻 Cellist
-- Region 23, varsity, MS symphony & HS philharmonic orchs
+- Region 23, varsity HS 2024-2028, MS symphony & HS philharmonic orchs
 - KYAC qualifier 2025
 
 ## 🧪 Science Fair 
