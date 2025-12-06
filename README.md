@@ -11,5 +11,5 @@
 ## 🧪 Science Fair 
 
 
-## 🚀 Also love model rockets and Physics
+## 🚀 Model Rockets
 
