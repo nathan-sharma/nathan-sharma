@@ -13,9 +13,9 @@
 - KYAC qualifier 2025
 
 ## 🧪 Science Fair 
+- 2025-26 is my first year doing ISEF
 - Hopefully it goes well at SEFH this year!
 
 ## 🚀 Also love model rockets and Physics
-- Locking in for 2027 F=MA
 - Building rockets whenever I get the free time
 
