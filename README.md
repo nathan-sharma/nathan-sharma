@@ -6,12 +6,12 @@
 - Mathcounts Houston Chapter 2023 & 2024
 
 ## 🎻 Cellist
-- Region 23, MS symphony & HS philharmonic orchs
+- Region 23, varsity, MS symphony & HS philharmonic orchs
 - KYAC qualifier 2025
 
 ## 🧪 Science Fair 
 - Hopefully it goes well at SEFH this year!
 
 ## 🚀 Also love model rockets and Physics
-- Future USAPHO qual??
+- Locking in for 2027 F=MA
 
