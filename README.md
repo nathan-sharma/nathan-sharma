@@ -1,6 +1,6 @@
 ## Hi, I'm Nathan 👋
 #### A little bit about me...
-### 📐 Comp math nerd 
+### 📐 Mathlete
 - Caltech Math Meet 2026
 - AMC/AIME 2023-25
 - Mathcounts Houston Chapter 2023 & 2024
