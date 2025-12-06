@@ -3,7 +3,7 @@
 ### 📐 Mathlete
 - Caltech Math Meet 2026
 - AMC/AIME 2023-25
-- Mathcounts Houston Chapter 2023 & 2024
+- Mathcounts Houston Chapter 2022-2024
 
 ## 🎻 Cellist
 - Region 23
