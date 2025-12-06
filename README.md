@@ -4,7 +4,6 @@
 - Caltech Math Meet 2026
 - AMC/AIME 2023-25
 - Mathcounts Houston Chapter 2023 & 2024
-- Possibly HMMT?
 
 ## 🎻 Cellist
 - Region 23
