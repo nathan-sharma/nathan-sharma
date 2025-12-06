@@ -4,6 +4,7 @@
 - Caltech Math Meet 2026
 - AMC/AIME 2023-25
 - Mathcounts Houston Chapter 2022-2024
+- F=ma 2027
 
 ## 🎻 Cellist
 
