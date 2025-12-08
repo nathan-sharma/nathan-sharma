@@ -6,7 +6,7 @@
 - Mathcounts Houston Chapter 2022-2024
 
 ## 🎻 Cellist
-- Region 23 MS Symphony 5th, HS Philharmonic 23rd
+- Region 23 MS Symphony rank 5th, HS Philharmonic rank 23rd
 - 2025 Midwest Clinic
 - 2024-2028 HS Varsity
 
