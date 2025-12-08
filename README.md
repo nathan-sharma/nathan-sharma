@@ -11,8 +11,9 @@
 - 2024-2028 HS Varsity
 
 ## 🧪 Science Fair 
-
+- SEFH 2026
 
 ## 🚀 Model Rockets
+- In my free time
 ## 👨‍🔬 Physics Comps
 - F=ma 2026
