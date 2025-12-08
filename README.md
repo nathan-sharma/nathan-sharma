@@ -4,7 +4,6 @@
 - Caltech Math Meet 2026
 - AMC/AIME 2023-25
 - Mathcounts Houston Chapter 2022-2024
-- F=ma 2027
 
 ## 🎻 Cellist
 - Region 23 MS Symphony 5th, HS Philharmonic 23rd
@@ -16,3 +15,4 @@
 
 ## 🚀 Model Rockets
 ## 👨‍🔬 Physics Comps
+- F=ma 2026
